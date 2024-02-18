@@ -1,2 +1,2 @@
 # OMNIFOOD-project
-OMNIFOOD 
+OMNIFOOD 🍛🥢🍹
